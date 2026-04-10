@@ -26,6 +26,6 @@
 
   <p align=center>
 bassie fictionkin -_-  any ships int! 
-
+making a new alt soon. 
  
 <img width="745" height="60" alt="IMG_1121" src="https://github.com/user-attachments/assets/c97a9716-600a-4e5e-823e-c1c775dc1e85" />
