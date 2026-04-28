@@ -36,5 +36,20 @@ thanks to that guy in my atabook that told me i got copied ! imagine hiding peop
 <details>
    <summary>wall of shame</summary>
 02:20 PM[Colbalt💥| Forsaken DNI] whispers: you are cringe and you suck
+  
+
+
+
+
+  .
+  .
+  ..
+  .
+
+  ...
+  .
+
+  .
+  .
 OK buddy LOL juts hide me or whatever ^_^
 </details>
