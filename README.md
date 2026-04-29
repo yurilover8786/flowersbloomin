@@ -41,6 +41,7 @@ thanks to that guy in my atabook that told me i got copied ! imagine hiding peop
 well well guess who still decided to have my old squiddo, seriously just delete that squiddo , its not yours for . sake 
 and hiding ANYONE who ever called you out for copying is stupid bro ?? maybe you couldve become more creative and actually think.
 anyways dont copy my skins bro pls
+AND changing your github user too?? LOL 
 </details>
 
 
